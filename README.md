@@ -1,0 +1,1 @@
+# Desigualdades-territoriales-y-tecnificaci-n-en-la-producci-n-agr-cola-ecuatoriana.
